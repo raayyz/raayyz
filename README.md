@@ -9,7 +9,7 @@ $\color{orange}{𝐁𝐅𝐘𝐈}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&
 
 $\color{orange}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{white}{── .✦}$ &nbsp;&nbsp;&nbsp; $\color{grey}{𝖢+𝗁⠀𝖾𝗇𝖼}$ &nbsp;&nbsp;&nbsp; $\color{red}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{grey}{𝖯𝗋𝖾𝖿𝖾𝗋⠀𝗍𝗈⠀𝗐2𝗂⠀𝗐/⠀𝗉𝖾𝗈𝗉𝗅𝖾⠀𝖨'𝗆⠀𝗇𝗈𝗍⠀𝖿𝖺𝗆𝗂𝗅𝗂𝖺𝗋⠀𝗐𝗂𝗍𝗁}$ 
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://pronouns.cc/@Pakkane" target="_blank">pronouns</a> &nbsp;&nbsp;&nbsp; <a href="https://catsinthecold.atabook.org//" target="_blank">新book​</a>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://pronouns.cc/@Pakkane" target="_blank">pronouns</a> &nbsp;&nbsp;&nbsp; <a href="https://catsinthecold.atabook.org/" target="_blank">新book​</a>
 ‎ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
 
 <div align="left">
