@@ -1,3 +1,6 @@
+<div align="center"> 
+  
+![Views](https://komarev.com/ghpvc/?username=makkapakkane&color=red&label=😼)
 
 <div align="right"> 
   
@@ -25,6 +28,4 @@ $\color{orange}{𝗣𝖺𝗄𝗄𝖺𝗇𝖾}$ &nbsp;&nbsp;&nbsp; . &nbsp;&nbsp;
   </a>
 <div align="right">
 <img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
-
-
 
