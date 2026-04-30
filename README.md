@@ -26,5 +26,5 @@ $\color{orange}{𝗣𝖺𝗄𝗄𝖺𝗇𝖾}$ &nbsp;&nbsp;&nbsp; . &nbsp;&nbsp;
 <div align="right">
 <img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
 
-<img width="100" height="50" alt="Just Kitten from Mercenary Kings , hopping around!" src="https://github.com/user-attachments/assets/82a28b30-8b88-44c2-addc-6f971b7585ff" />
+
 
