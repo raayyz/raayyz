@@ -20,7 +20,7 @@ $\color{#E83525}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 
 <div align="left"> 
 
-$\color{#744516}{𝗣𝖺𝗄𝗄𝖺𝗇𝖾}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#D70A11}{𐔌՞ ܸ.ˬ.ܸ՞𐦯}$  &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#744516}{𝗦𝖾𝗏𝖾𝗇𝗍𝖾𝖾𝗇}$ 
+$\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#D70A11}{𐔌՞ ܸ.ˬ.ܸ՞𐦯}$  &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#FFD977}{.}$ &nbsp;&nbsp;&nbsp; $\color{#744516}{𝗦𝗲𝘃𝗲𝗻𝘁𝗲𝗲𝗻}$ 
 
 <div align="left"> 
   <a href="https://github.com/kittinan/spotify-github-profile">
