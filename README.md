@@ -41,5 +41,5 @@ $\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD9
 
 <img width="515" height="272" alt="Screenshot 2026-05-28 073622" src="https://github.com/user-attachments/assets/f822e091-ba93-4f69-9fd7-6ccdaa7bf233" />
 <div align="center">
-screenshot of shame tsk tsk tsk, shame on you
+screenshot of shame tsk tsk tsk, shame on you. Imagine colourpicking, what a weirdo! 🤣
 
