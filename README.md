@@ -29,3 +29,17 @@ $\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD9
 <div align="right">
 <img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
 
+<div align="center">
+
+
+
+
+
+
+
+
+
+<img width="515" height="272" alt="Screenshot 2026-05-28 073622" src="https://github.com/user-attachments/assets/f822e091-ba93-4f69-9fd7-6ccdaa7bf233" />
+<div align="center">
+screenshot of shame tsk tsk tsk, shame on you
+
