@@ -27,11 +27,9 @@ $\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD9
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ximgbhqd65cc3e2rgnh3xvbuny&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=FDA848&bar_color_cover=false">
   </a>
 <div align="right">
-<img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
 
 <div align="center">
-
-
+<img width="1001" height="241" alt="image" src="https://github.com/user-attachments/assets/1fe424c6-5537-4706-bc32-4cf5000f1c68" />
 
 
 
