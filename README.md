@@ -37,7 +37,5 @@ $\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD9
 
 
 
-<img width="515" height="272" alt="Screenshot 2026-05-28 073622" src="https://github.com/user-attachments/assets/f822e091-ba93-4f69-9fd7-6ccdaa7bf233" />
-<div align="center">
-screenshot of shame tsk tsk tsk, shame on you. Imagine colourpicking, what a weirdo! 🤣
-
+<img width="618" height="76" alt="image" src="https://github.com/user-attachments/assets/242de726-56af-4d76-9ca7-bfc08f94ffa9" />
+I'm glad you care about my opinion of you that much, imagine being so insecure about someone hiding you that you have to get on an alt and whisper them that. Just say youre a small, insignificent, insecure little person. 🤣
