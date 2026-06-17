@@ -38,4 +38,4 @@ $\color{#744516}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#FFD9
 
 
 <img width="618" height="76" alt="image" src="https://github.com/user-attachments/assets/242de726-56af-4d76-9ca7-bfc08f94ffa9" />
-I'm glad you care about my opinion of you that much, imagine being so insecure about someone hiding you that you have to get on an alt and whisper them that. Just say youre a small, insignificent, insecure little person. 🤣
+I'm glad you care about my opinion of you that much, imagine being so insecure about someone hiding you that you have to get on an alt and whisper them that. Just say youre a small, insignificant, insecure little person. 🤣
