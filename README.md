@@ -6,7 +6,7 @@
   
 &nbsp;&nbsp;&nbsp; $\color{#2490FC}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{𝐈𝐧𝐟𝐨}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{.}$ &nbsp;&nbsp;&nbsp; $\color{#2490FC}{ฅ}$ &nbsp;&nbsp;&nbsp; 
 
-$\color{#0C75F3}{𝐈𝐧𝐭𝐞𝐫𝐞𝐫𝐬𝐭𝐬}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{── .✦}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#0C75F3}{𝗍𝗉𝗇⠀⠀𝗈𝖼𝗌⠀⠀𝗀𝗓⠀⠀𝗆𝗁𝖺}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+$\color{#0C75F3}{𝐈𝐧𝐭𝐞𝐫𝐞𝐫𝐬𝐭𝐬}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{── .✦}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#0C75F3}{⠀𝗈𝖼𝗌⠀⠀𝗀𝗓⠀⠀𝗆𝗁𝖺⠀⠀𝗆𝖺𝗋𝖻𝗅𝖾𝗁𝗈𝗋𝗇𝖾𝗍𝗌}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 $\color{#0442AC}{𝐁𝐅𝐘𝐈}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#94D8FC}{── .✦}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#0442AC}{𝖴𝗌𝗎𝖺𝗅𝗅𝗒⠀𝗈𝖿𝖿𝗍𝖺𝖻⠀𝗌𝗈⠀𝗆𝗂𝗀𝗁𝗍⠀𝗇𝗈𝗍⠀𝗋𝖾𝗌𝗉𝗈𝗇𝖽}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#0442AC}{𝖱𝖾𝖺𝖽}$ <a href="https://rentry.co/makkapakkane" target="_blank">rentry</a> $\color{#0442AC}{4⠀𝗆𝗈𝗋𝖾⠀𝗂𝗇𝖿𝗈}$
 
