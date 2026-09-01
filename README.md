@@ -1,10 +1,10 @@
-<img width="1200" height="149" alt="Untitled135_20260901173928" src="https://github.com/user-attachments/assets/754ad5ed-98a5-4f27-b094-1b2ec007bc52" />
-
-
 
 <div align="center"> 
   
 ![Views](https://komarev.com/ghpvc/?username=makkapakkane&color=E6CDC8&label=🐈‍⬛)
+
+<img width="1200" height="149" alt="Untitled135_20260901173928" src="https://github.com/user-attachments/assets/754ad5ed-98a5-4f27-b094-1b2ec007bc52" />
+
 
 <div align="right"> 
   
