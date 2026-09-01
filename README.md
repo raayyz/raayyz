@@ -1,3 +1,7 @@
+<img width="1100" height="149" alt="Untitled135_20260901173521" src="https://github.com/user-attachments/assets/060e11ab-a060-4d05-8d3a-a8dabcec942b" />
+
+
+
 <div align="center"> 
   
 ![Views](https://komarev.com/ghpvc/?username=makkapakkane&color=E6CDC8&label=🐈‍⬛)
