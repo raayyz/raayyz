@@ -27,7 +27,7 @@ $\color{#C18B99}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 <div align="left">
 <img width="510" height="300" alt="image" src="https://github.com/user-attachments/assets/61f89ff0-463e-4942-b427-ab1e9099e7a4" />
 
-→
+
 <div align="left"> 
 
 $\color{#684269}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#CE8096}{𐔌՞ ܸ.ˬ.ܸ՞𐦯}$  &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#684269}{𝗦𝗲𝘃𝗲𝗻𝘁𝗲𝗲𝗻}$ 
