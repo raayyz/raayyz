@@ -19,6 +19,11 @@ $\color{#C18B99}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://pronouns.cc/@Pakkane" target="_blank">pronouns</a> &nbsp;&nbsp;&nbsp; <a href="https://catsinthecold.atabook.org/" target="_blank">新book​</a>
 ‎ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://catzinthecold.straw.page" target="_blank">strawpage</a> 
 
+<div align="left"> 
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ximgbhqd65cc3e2rgnh3xvbuny&cover_image=true&theme=novatorem&show_offline=false&background_color=E6CDC8&interchange=false&profanity=false&bar_color=E6CDC8&bar_color_cover=false">
+  </a>
+
 <div align="left">
 <img width="510" height="300" alt="image" src="https://github.com/user-attachments/assets/61f89ff0-463e-4942-b427-ab1e9099e7a4" />
 
@@ -27,18 +32,6 @@ $\color{#C18B99}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 
 $\color{#684269}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#CE8096}{𐔌՞ ܸ.ˬ.ܸ՞𐦯}$  &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{.}$ &nbsp;&nbsp;&nbsp; $\color{#684269}{𝗦𝗲𝘃𝗲𝗻𝘁𝗲𝗲𝗻}$ 
 
-<div align="left"> 
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ximgbhqd65cc3e2rgnh3xvbuny&cover_image=true&theme=novatorem&show_offline=false&background_color=E6CDC8&interchange=false&profanity=false&bar_color=E6CDC8&bar_color_cover=false">
-  </a>
-<div align="right">
 
-<div align="center">
-
-
-<img width="506" height="827" alt="Screenshot 2026-09-07 003249" src="https://github.com/user-attachments/assets/853106f7-276d-48b4-86fd-b948f455ae18" />
-
-
-my cat if you even care
 
 
